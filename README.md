@@ -1,0 +1,1 @@
+# taichihamada_portfolio
